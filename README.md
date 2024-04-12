@@ -1,5 +1,5 @@
 - 👋 Hi, I'm @GuiGarciaSilva
-- 👀 I'm interested in Graphic Design
+- 👀 I'm interested in Job
 - 🌱 I'm currently learning Marketing
 - 💞️ I'm looking to collaborate in Graphic Design
 - 📫 How to contact me 55+14991180153
